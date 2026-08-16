@@ -21,4 +21,4 @@ I am a Master's student in **Design and Test of Integrated Circuits (DTIC)** at 
 
 ### 📫 Get in Touch
 - **Email:** [anandingermany2025@gmail.com](mailto:anandingermany2025@gmail.com)
-- **LinkedIn:** [linkedin.com/in/anand-n-6ab3b11b7](https://www.linkedin.com/in/anand-n-6ab3b11b7/)
+- **LinkedIn:** [linkedin.com/in/anand-nagaraj-6ab3b11b7](https://www.linkedin.com/in/anand-nagaraj-6ab3b11b7/)
